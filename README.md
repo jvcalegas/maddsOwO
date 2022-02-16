@@ -1,4 +1,4 @@
-### eai 🤓 
+### <div align="center"> Eaí 🤓 </div>
 Maddu aqui 🐱‍💻
 Seja bem-vinde ao meu perfil! 
 
